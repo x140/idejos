@@ -17,4 +17,4 @@ manoip.lt website clonas
 
 crypto naujienu website
 
-Kurti website (.....) ir deti google adsense reklamas.
+Kurti website (Randomize list, random winner picker,...) ir deti google adsense reklamas.
